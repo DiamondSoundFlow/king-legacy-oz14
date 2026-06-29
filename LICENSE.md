@@ -1,4 +1,4 @@
-
+no-ban king legacy Script offers the most advanced king legacy Script, with anti-ban and speed. Perfect for dominating any match.
 
 
 
